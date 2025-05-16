@@ -4,6 +4,6 @@
 - 🏎 I like simracing
 - 🤖 Learning godot
 - 🥺 Newbie
-- ⚡ Fun fact: i love undertale
+- ⚡ I love undertale
 - 🎇 I love konosuba
 
